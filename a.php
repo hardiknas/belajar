@@ -1,3 +1,5 @@
+"Jangan Berhenti"
+
 Langkah kecil kutapaki pagi,
 Mentari tersenyum hangat di hati,
 Angin berbisik, "Jangan berhenti,"
